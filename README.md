@@ -1,7 +1,7 @@
 # HAHA Wallet BOT
 HAHA Wallet BOT
 
-- Register Here : [HAHA Wallet](https://join.haha.me/REYVALDI-QURTBV)
+- Register Here : [HAHA Wallet](https://join.haha.me/NANANG-1WPKV5)
 - Download Extension
 - Register With Email
 - Save Seed Phrase
